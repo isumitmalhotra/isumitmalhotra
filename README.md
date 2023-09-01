@@ -16,7 +16,7 @@
       🌱 Teaching, Learning, Evolving | ✨ Let's Innovate Together!
 - 📫 How to reach me
       💼 LinkedIn: linkedin.com/in/isumitmalhotra
-      📧 sumitmalhotra2002@email.com
+      📧 sumitmalhotra2002@gmail.com
       🐦 Twitter: @iSumitmalhotra
 
 <!---
